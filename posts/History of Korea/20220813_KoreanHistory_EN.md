@@ -1,4 +1,4 @@
-### 2-1. Since when did the existence of man begin on the Korean peninsula?
+### 1-1. Since when did the existence of man begin on the Korean peninsula?
 
 - pavilion  
 가설 건물, 부속 건물, 경기장
